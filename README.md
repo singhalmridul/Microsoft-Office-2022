@@ -55,5 +55,3 @@ Steps to Download and Install latest Microsoft Office 2022 in Windows.
 ![image](https://user-images.githubusercontent.com/79533228/169354799-cdd18017-72a4-42af-85f7-4a3c3c4cfd03.png)
 
 **Congratulations !! you have succesfully installed and cracked Microsoft Office 2022 on your Windows Operating System.
-
-For the Step by Step installation video guide, checkout https://youtu.be/aNF7fP6Wt5A
